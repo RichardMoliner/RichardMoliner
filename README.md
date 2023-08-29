@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **richardmoliner1@gmail.com**
 
-- ⚡ Fun fact **https://linkedin.com/in/richard-moliner**
+- 📄 Know about my experiences [https://linkedin.com/in/richard-moliner](https://linkedin.com/in/richard-moliner)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
